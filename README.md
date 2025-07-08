@@ -2,7 +2,7 @@
                                         she/they/xe.
 
 
-"Bless me father, for I have sinned. Really! I'm not kidding here, big sinner. Yup."
+"Grandfather of Jimmy Joe Billy Bob, cousin of Johnny Joe Billy Jimbo Bob!"
 
 call me by adam, bones, noyadeplus, or noyade. thanks.
 
