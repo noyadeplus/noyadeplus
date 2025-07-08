@@ -5,4 +5,4 @@
 
                                                  noyade/noyadeplus/adam/bones
 
-                                  "Bless me, father, for I have really sinned. Really! I'm not kidding here! Big sinner. Yup!"
+"Bless me father, for I have sinned. Really! I'm not kidding here, big sinner. Yup."
