@@ -12,6 +12,6 @@ get angry really easily, dont irritate me on purpose.
 
 <img width="562" height="418" alt="Image" src="https://github.com/user-attachments/assets/0b42a581-c942-4e41-a425-f7943a6b3711" />
 
-maybeee.. click these silly links belooww?
+maybeee.. click thissss silly link belooww?
 
 [StrawPage](https://noyadeplus.straw.page/)
