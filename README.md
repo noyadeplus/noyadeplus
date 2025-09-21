@@ -16,6 +16,6 @@ dont be scared, i dont bite.
 
 maybeee.. click thissss silly link belooww?
 
-<img width="562" height="418" alt="Image" src="https://github.com/user-attachments/assets/0b42a581-c942-4e41-a425-f7943a6b3711" />
+<img width="494" height="338" alt="Image" src="https://github.com/user-attachments/assets/dac57eb2-1348-4788-9612-4170280afdba" />
 
 [StrawPage](https://noyadeplus.straw.page/)
