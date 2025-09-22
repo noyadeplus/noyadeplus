@@ -2,7 +2,7 @@
                                         he/him
 
 
-"Grandfather of Jimmy Joe Billy Bob, cousin of Johnny Joe Billy Jimbo Bob!"
+"Bless me father, for I have sinned. Really. Not kidding here. Big sinner. Yup."
 
 doc scratch 1 fan trust 
 
