@@ -2,11 +2,9 @@
                                         he/him
 
 
-"Bless me father, for I have sinned. Really. Not kidding here. Big sinner. Yup."
+dont care what u say im a boy ok yeah friend me c+h idc
 
-I don't care what you call me. Fuck it, even call me something derogatory.
-
-I do not want you to friend me. But I don't care if you "Cuddle + Hug" or whatever it is called.
+bec noir + hank j wimbleton kinnie
 
 <img width="494" height="338" alt="Image" src="https://github.com/user-attachments/assets/dac57eb2-1348-4788-9612-4170280afdba" />
 
