@@ -2,9 +2,8 @@
                                         he/him
 
 
-dont care what u say im a boy ok yeah friend me c+h idc
+alalala i mso cool
 
-bec noir + hank j wimbleton + postal dude kinnie
 
 
 
