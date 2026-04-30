@@ -6,11 +6,9 @@ dont care what u say im a boy ok yeah friend me c+h idc
 
 bec noir + hank j wimbleton + postal dude kinnie
 
-i likely have:
 
-ied, autism
 
-my coms are open!
+my comms are open!
 
 [Commissions](https://noirperiastron.straw.page)
 
