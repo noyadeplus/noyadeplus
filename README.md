@@ -5,8 +5,8 @@
 rmking
 </p>
 
-<p align="center">
+<div align="center"> 
   
 [StrawPage](https://engrus.straw.page/) [Toyhouse](https://toyhou.se/noyadeplus) [Atabook](https://ruseng.atabook.org) [Rentry](https://rentry.co/rusengfan) [Pronouns.cc](https://pronouns.cc/@noyadeplus)
-</p>
+</div>
 
