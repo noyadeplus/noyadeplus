@@ -1,5 +1,5 @@
 ---
-                                        he/him
+he/him
 
 
 alalala i mso cool
